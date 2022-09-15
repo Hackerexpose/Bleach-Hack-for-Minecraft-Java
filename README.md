@@ -1,0 +1,2 @@
+# Bleach-Hack-for-Minecract-Java
+the original link i got this from was very sus and went through linkvertise and i hate linkvertise cause they have that Human Verification Bullshit and that website really looks like a scam but i still managed to get the og Minecraft Hack File from the Link but since there was no og website and it just downloaded directly from linkvertise i reuploaded it here to make it easier to get.
